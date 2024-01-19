@@ -10,7 +10,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1T2hVFveWlqmya1BiXeSzmeYe46_TTaOE/view?usp=drivesdk](https://drive.google.com/file/d/1T2hVFveWlqmya1BiXeSzmeYe46_TTaOE/view?usp=drivesdk)
 
-- ⚡ Fun fact **I think i am well disciplined.**
+- ⚡ Fun fact- **I think i am well disciplined.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
